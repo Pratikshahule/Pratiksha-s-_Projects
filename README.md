@@ -1,2 +1,3 @@
-# Pratiksha-s-_Projects
-Authoe-Pratiksha Hule
+# Pratiksha's-_Projects
+<br>
+Author-Pratiksha Hule
